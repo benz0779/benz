@@ -1,0 +1,13 @@
+# 直营网
+
+[188](188.md) | [直营](bb.md) | [现金沙巴](sb.md) | [信用网](xy.md)  |[平博](pb.md)  |[GPK三升](gpk.md) | [BTI](bti.md)  |[易胜博](ysb.md) 
+
+## 所有地址
+
+| 名称 | 地址                    |
+| ------------- | ------------------------------ |
+| 万博 | https://cn.man153.com/sports/msports https://cn.mebetx74.com/sports/msports      |
+| 新利 | https://www.xl18luck.in/zh-cn/ https://www.xl18luck.in/zh-cn/    |
+| 新濠 |https://x825888.com/ https://x268888.com |
+| 贝博 |https://www.ballbet4.com/ https://www.ballbet2.com/ |
+| 亿万 |https://www.mr8001.com/ https://www.mr001cc/ |
