@@ -1,13 +1,15 @@
-# **直营网**
+[188](README.md) | [直营](bb.md) | [现金沙巴](sb.md) | [信用网](xy.md)  |[平博](pb.md)  |[GPK三升](gpk.md) | [BTI](bti.md)  |[易胜博](ysb.md) 
 
-[188](188.md) | [直营](bb.md) | [现金沙巴](sb.md) | [信用网](xy.md)  |[平博](pb.md)  |[GPK三升](gpk.md) | [BTI](bti.md)  |[易胜博](ysb.md) 
+# 直营网插件 
 
-## 所有地址
+### 此插件支持99%的bbin直营网站的 newbb, bb .sb 体育 三个系统
 
-### | 名称 | 地址                    |
-### | ------------- | ------------------------------ |
-### | **万博** | <https://cn.man153.com/sports/msports> <https://cn.mebetx74.com/sports/msports>      |
-### | 新利 | https://www.xl18luck.in/zh-cn/ https://www.xl18luck.in/zh-cn/    |
-### | 新濠 |https://x825888.com/ https://x268888.com |
-### | 贝博 |https://www.ballbet4.com/ https://www.ballbet2.com/ |
-### | 亿万 |https://www.mr8001.com/ https://www.mr001cc/ |
+ 1. https://059p.net/ 
+ 2. https://www.7130004.com/
+
+### 能搜索到的就可以使用
+
+
+
+
+
